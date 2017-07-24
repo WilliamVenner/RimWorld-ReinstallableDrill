@@ -2,7 +2,7 @@
 
 ## Reinstallable Drill
 
-[Workshop](http://steamcommunity.com/sharedfiles/filedetails/?id=)
+[Workshop](http://steamcommunity.com/sharedfiles/filedetails/?id=1088742286)
 
 _(This mod has no requirements)_
 
